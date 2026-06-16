@@ -1,0 +1,595 @@
+小天鹅（LittleSwan）空调全国官方售后服务点热线号码:𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+小天鹅（LittleSwan）空调的维修电话可能因地区和具体服务内容而有所不同，但通常，用户可以通过拨打小天鹅（LittleSwan）空调的全国统一官方客服热线𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎来获取维修服务。以下是一些可供参考的电话号码：
+小天鹅（LittleSwan）空调全国统一官方客服热线：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+小天鹅（LittleSwan）空调另一客服热线：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+这些电话号码通常提供24小时服务，用户可以随时拨打咨询或报修。在拨打电话时，建议用户准备好小天鹅（LittleSwan）空调的型号、故障描述以及详细的联系方式，以便客服人员能够更快地为用户提供帮助。
+此外，小天鹅（LittleSwan）空调在各地区也可能设有售后服务电话，用户可以根据自己所在的城市，查找并拨打相应的售后服务电话𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。这些电话号码可能会因地区而异，并且可能会有所变动，因此建议用户在拨打前先进行确认。
+总的来说，如果您需要小天鹅（LittleSwan）空调的维修服务，可以直接拨打上述全国统一官方客服热线𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎或所在地区的售后服务电话，以获取及时、专业的帮助。
+
+小天鹅（LittleSwan）空调24小时售后服务热线上线（2026最新公告）
+小天鹅（LittleSwan）空调售后服务电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+小天鹅（LittleSwan）空调售后24小时客服热线：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+本公司主营小天鹅（LittleSwan）空调维修 →小天鹅（LittleSwan）空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，小天鹅（LittleSwan）空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、小天鹅（LittleSwan）空调售后维修电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+小天鹅（LittleSwan）空调24小时全国推出各售后受理客服中心(2026上线)
+小天鹅（LittleSwan）空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+小天鹅（LittleSwan）空调贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显小天鹅（LittleSwan）空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+小天鹅（LittleSwan）空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+小天鹅（LittleSwan）空调24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔或  𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔客服为您服务。
+
+
+
+小天鹅（LittleSwan）空调售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 小天鹅（LittleSwan）空调常见故障代码维修指南
+
+小天鹅（LittleSwan）空调故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 小天鹅（LittleSwan）空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+小天鹅（LittleSwan）空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修小天鹅（LittleSwan）空调(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+小天鹅（LittleSwan）空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月16日15时48分28秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+小天鹅（LittleSwan）空调贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显小天鹅（LittleSwan）空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/846943b121aeb320fb7d6a467680ca9b6d96aba7
+
+江苏电信 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/d154283f121c24de7a9d850687aed547d3e77dce
+
+江苏 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/8efa0abf18db7a8df3bc34b8e0abf6b29af29eb3
+
+安徽广电 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/56eff4f537b4e8627816ada74f8f9a3db8b4f72d
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/793a55d3fc4acffebd7add17483a166cbf3f3f75
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/c4d0c99532f6b921be50d0b4197d615fe0ae04e8
+
+湖北 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/e69f03d8b2c307d96b3401719cacf4a91a8b03f6
+
+湖南电信组播直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/17f688de9f9dd092cb253f629e63c3a99fef0afc
+
+湖南电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/e927d9419711a08892c2f89bb8b7df0e1cf0e86e
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/935ff363ca26ae09636fb5a4b5c268f0e6702502
+
+湖南联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/921ad0718ef4f6f6588959a728cc65a8f89bbad8
+
+湖南移动 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/bb9bd00d5f249690443de9036af992b80f6f6e75
+
+湖南 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/20797ab95672d8a85e935f27471d4287f46819c8
+
+重庆移动组播直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/f5afbc7b1188da163d704c49187b2e85aa8ca8fe
+
+重庆联通组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/8ddbbd3c8fda0477269386bcde63969ccca5c66c
+
+重庆联通直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/035596cdcd97ea9bc92bf737e798e0747319511a
+
+重庆电信组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/18acf222cf9677fac4526dfcc9a1998a5972da45
+
+重庆电信直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/c10d531469985097306d9f720064b32e552ded5c
+
+重庆 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/68a30ab29c2916066193ec82e4cf342689f3c6b6
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/1218ee8bda68ad696ca8571ad2265ed0fb267b57
+
+四川电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/17598d8bce203a2f2fe3f1f20954bb7eff684cc7
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/6a73c23d3863188bbf780aadac8a3a10aeae6044
+
+四川广电 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/ef419dd1e1a11c5f29336643d92f8547f08e0302
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/f06bb12de1463b56fbd00f6352a9fb7121071beb
+
+四川联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/88adc3159a652eac81ebd54db15de9e9193ccddf
+
+四川 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/6ee84e2c3362f0a08b514216882005c9191fe452
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/2c9b91c9796a6b696cc4b392cf752a516b1cfaf8
+
+云南移动 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/4937124a972d20e57fd4dd2398f01f0f9f5e0634
+
+云南 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/c18fa98bcdb94cec2b325b062664201a834780fd
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/cd88494458e784296e9d4a4bc074f0d86a875c88
+
+贵州移动 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/fd81dd01ad617be2d06dc39570354a6d42de9bc7
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/c36a72f0642ee1f98336a376a8483859a0b42a59
+
+贵州联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/59613dc3367bb6cf1ba00b2932087eaecad8c874
+
+贵州 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/f2d4a955e1ae4aa53b63fc0749d22fed8521bb45
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/857e3ceff0667240d2b3412e86606d4746d47aa2
+
+福建联通 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/ae56f26d8edaf887aec8c761f89ff5f7783b71a0
+
+福建移动 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/56632af45132cdb83bdbb072a8717bc7df9a2e20
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/d8cb8711d370dd0360e3fc0706c603eccb57115b
+
+福建电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/cc4a68b592bdc7cfcb853256af8652194afa2696
+
+福建 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/316d82912f366a531629c5cc9133773f8ce35925
+
+安徽移动 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/b9db82a36287ea47ffcd289518995b57c92f79a7
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/ebd3ebe7431f85a3aec3dcf2adfec5c0dd9d3e1e
+
+安徽电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/0d0844718a608e771d4ba177e1576edd9a543492
+
+安徽联通 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/3d6d9c2abf440c4c0ec230fd4a0e86b9240e7daf
+
+安徽 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/1543aa32376ff3de35807bd6ded6250d794b68f0
+
+陕西地方台直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/c24f6de3473a2ef498fa7f2340437ca1b98d7dd8
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/0f82fc0f099c5dcc0981a76bfa1b05334201b6c3
+
+陕西电信 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/4b32cf06e49390779dcb4f464b1717a818922c0b
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/6a45d98625e93a0159fcdc703036091b5b49fd1f
+
+陕西移动 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/2a52a074e6452e394963f18c055d13460cf9b9fe
+
+陕西 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/48be0c184d75607f6ba2eca847c2df8b3dfbc57e
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/518b9788e4edfe3695f022a9ed1ae07fe4545960
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/4fc3c9dfcb182803d647f1d792616015f6d6baee
+
+甘肃 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/4dc824abb46358df8f831075092fc526df779415
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/ac6a08464240f6441a8a8e2b679c879034169191
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/2428b9b7568f2ee88b64293034d3a692019f8ef3
+
+山西联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/610384c96554c66b3c189940282bcf0a11104629
+
+山西 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/3813d5ad94ee5d67ea6cceb4522ca15287edcafa
+
+天津电信组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/a0648cf2c85ea813611e7a779732a98cc92fb024
+
+天津联通组播直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/b6060d3b7e29ff33b3b4d0da4907827903138762
+
+天津 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/b62d7afb934eedcba6b12b660f85c5f1373ed828
+
+上海移动直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/d3ba41341ea5f0f826c8cb06c63bcc84e4fd4cb8
+
+上海联通组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/1177de5c89f98f3b6f28d51eb5af6b82dacd70c9
+
+上海联通直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/ec0a089344e35d1559c58e519e64c51ab81e4f46
+
+上海电信组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/545055edd953438fd26f6facac6ea5bd028392ef
+
+上海电信直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/a8950da918106ce96ab8414aea80eac1a7e39a24
+
+上海 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/afee2a62dde889485632a21d84342f562ca572c0
+
+北京移动 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/981a19b347e55787b7c70f8a5abbe5448fb30a39
+
+北京移动组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/4812ca15ea195f2ca866cf8294fe0b31c2d08893
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/534d9a8fa56a9b3fe35d5f49c0b73d0e714f0359
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/7511dee294743fc6687064331505a640336e7a92
+
+北京联通 IPTV 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/a48cc8672a9882052e19eb55af5bfd5572235ace
+
+北京 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/b9555e6dc6249c75f215f5348106ee9a55ea84db
+
+部分地区的移动可全网通用： https://github.com/wrgfdn-u/evwmqe/commit/b82f40d620d05da0c20325fd51c19ec1c1bb1014
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/jewelrober/dpcwds/commit/3e5caaaebc6461391aa850ad9500063795a7776f
+
+广播电台下载地址： https://github.com/wrgfdn-u/evwmqe/commit/33fe716d11a6cb0e6eabf8d92691864135229521
+
+国内景区直播源下载地址： https://github.com/jewelrober/dpcwds/commit/0ac8eb8e92e0194bbb457f0b95b8debd6438bf05
+
+轮播华数黑莓下载地址： https://github.com/wrgfdn-u/evwmqe/commit/5489d076c8df9c22bade953e9ea20a8940c99f9d
+
+台湾香港澳门电视台直播源下载地址： https://github.com/jewelrober/dpcwds/commit/ad6c7cdfc086d049e60ab0936d4b00903ca841af
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/wrgfdn-u/evwmqe/commit/9f6eb142f2c40c125e9294af147fcddcf0f941be
+
+国外电视台直播源下载地址： https://github.com/jewelrober/dpcwds/commit/928e1d0d0d67e94d67dcbeb9217c517154f85075
+
+卫视地方台安徽农大下载地址： https://github.com/wrgfdn-u/evwmqe/commit/3eb7b604021ec24bb324f194e186e388ba520007
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/jewelrober/dpcwds/commit/2717a027b2e7ab18e78e669b1efaf12c7e5d0f0f
+
+卫视上海源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/c207bd093c61f348548534860055146f927e7f04
+
+卫视重庆广电 下载地址： https://github.com/jewelrober/dpcwds/commit/c7ebc03b95103ab751e4354264094eec0245ef48
+
+卫视百视 TV 下载地址： https://github.com/wrgfdn-u/evwmqe/commit/4d55fec81d702bb2b04c39947c714a355625d60c
+
+移动 IPv6 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/28cf1d1664a9652f0731ab63d6841c374345b69c
+
+国内电视台 IPv6 直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/54af68188a77828ad36e31bfa3ccb7898c6e3fcb
+
+各大卫视、上千个地方台： https://github.com/jewelrober/dpcwds/commit/b4132fda03c085b30fb2762f7110cae24911fbf2
+
+国内电视台直播源下载地址： https://github.com/wrgfdn-u/evwmqe/commit/089240431482ee68fb6d120a84d3cfefff86ed2c
+
+全国可用直播源： https://github.com/jewelrober/dpcwds/commit/31555b8c0a3100480e3ca5d4d29e5112e32669f3
+
+包括完整内容所有已知频道： https://github.com/wrgfdn-u/evwmqe/commit/386fb117474f8f913279c16764898d8c499a4c53
+
+除成人内容以外的已知频道： https://github.com/jewelrober/dpcwds/commit/994d1b66e36a2be42c8f46e0811f050d44597dc7
+
+收集来自世界各地公开可用的 IPTV： https://github.com/wrgfdn-u/evwmqe/commit/8a764d670ddf7105c95b24f54c4213c0203932fb
+
+稳定地址： https://github.com/jewelrober/dpcwds/commit/acafff55b6f4e6810f2962198192799da15065aa
+
+2026-06-16 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/wrgfdn-u/evwmqe/commit/4d2e0d274c898e9e94941e5425cab94292848d99
+
+2026-06-16 更新 IPTV 工具： https://github.com/jewelrober/dpcwds/commit/24e07dbaaf20c5be447f93242537c4144ef5c656
+
+2026-06-16 更新世界各地 IPTV 频道： https://github.com/wrgfdn-u/evwmqe/commit/ec7f3aa3277919b0c3d8a78038ad90c07001cd6f
+
+2026-06-16 更新全国可用直播源： https://github.com/jewelrober/dpcwds/commit/9b0d231b610c38459243af09def31e6d9869f39a
+
+新增各地运营商的 IPTV 地址： https://github.com/wrgfdn-u/evwmqe/commit/997e5c185c07cbe8504080b0c4cd7a51ce654ae5
+
+插件推荐： https://github.com/jewelrober/dpcwds/commit/77ed544f0fa90db7e43098bee5c56cfc90c368a4
+
+视频教程增加： https://github.com/wrgfdn-u/evwmqe/commit/e6bda6e17fb18aa93d5e7ec6f8babac0d02466d9
+
+咪咕源失效： https://github.com/jewelrober/dpcwds/commit/d5d90194fe607011d608786cc0c9e14a65b4d684
+
+2026-06-16 更新各地运营商 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/221d8bd8b550647edf273a355125296f857d6880
+
+2026-06-16 更新台湾香港海外直播源： https://github.com/jewelrober/dpcwds/commit/958157c336b618aa56325d611a202a85056cf05d
+
+新增辽宁广电直播源： https://github.com/wrgfdn-u/evwmqe/commit/2d23e6278de08933c0850ea7a3e95704c649a2c5
+
+新增江西广电直播源： https://github.com/jewelrober/dpcwds/commit/36d7adeddaeb72fff0704be010ee11c8e0b73dcd
+
+新增湖北广电直播源： https://github.com/wrgfdn-u/evwmqe/commit/f0997f0b99b2929243a2a08d3cbf08f59f243add
+
+新增中国广电 cctv + 卫视直播源： https://github.com/jewelrober/dpcwds/commit/627dff9d07db117cd0dcec1be34676f8df239e4c
+
+新增辽宁电信 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/2fe8dc90fa92587faaa5869ab8b4694bbd817537
+
+2026-06-16 更新台湾香港海外直播源： https://github.com/jewelrober/dpcwds/commit/aaf49ab58339f54013025d1a7744d7e4f9e8876a
+
+新增辽宁移动直播源： https://github.com/wrgfdn-u/evwmqe/commit/5d02d085aeb45bd7d0da470864c6bf0a708e0558
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/2a4277b73c05adaf2bca851b36ad4099349ac757
+
+新增广东联通 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/6e1e3a101c66037b453c6264315d9fb41c70b695
+
+新增四川广电 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/aca55ce74082d82577e7689b5b01f3e754629f46
+
+新增云南电信 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/feac8a27e16c63dd52954b7dadbeb37d0047d847
+
+2026-06-16 更新国内电视台直播源： https://github.com/jewelrober/dpcwds/commit/6e410a950e4938da0670b1947e85a842d30c2a94
+
+新增福建电信 IPTV 直播源： https://github.com/wrgfdn-u/evwmqe/commit/e3a0b7f93240c6ee91bb2b0f3034991393640f46
+
+新增天途云 CCTV + 卫视： https://github.com/jewelrober/dpcwds/commit/d2eca2449d3c6a2befd9a3333fc65d89e56dead1
+
+新增腾讯云 CCTV + 卫视： https://github.com/wrgfdn-u/evwmqe/commit/f3d5fac346bf05324b512ca475783287be7a0dbe
+
+新增 CCTV 付费频道直播源： https://github.com/jewelrober/dpcwds/commit/eb843fe83740f1d4d6722f407540208671286fe7
+
+新增广播电台： https://github.com/wrgfdn-u/evwmqe/commit/0dbbe8d197818f83ffc49d1860480cbabb634719
+
+2026-06-16 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/jewelrober/dpcwds/commit/87846edcec8c4a01d8d11e29ede3327f6cfafcc7
+
+2026-06-16 更新 台湾香港海外直播源： https://github.com/wrgfdn-u/evwmqe/commit/95d14cc27dc522072c53b8a748bb1f1a8ad037ef
+
+2026-06-16 更新 国内电视台直播源： https://github.com/jewelrober/dpcwds/commit/1a9224bc8aeb370cd5b966f1908cb3266e8a1e8e
+
+国家直播源： https://github.com/wrgfdn-u/evwmqe/commit/87128f3ca99666e5ee3b412909bc914fd89197d6
+
+直播源： https://github.com/jewelrober/dpcwds/commit/8f614bfd19ba9897f2598d148286edc0e8b02600
+
+影视剧场： https://github.com/wrgfdn-u/evwmqe/commit/16ca991e39ead032280e8807d906c7e5ac209ef6
+
+台湾香港澳门： https://github.com/jewelrober/dpcwds/commit/a510e195c73e5fdc381c9bdecabfa3e5405edfed
+
+国外电视台： https://github.com/wrgfdn-u/evwmqe/commit/163a20bb35cd77e0c49ac3c465ca2e9f120e3324
+
+国内电视台： https://github.com/jewelrober/dpcwds/commit/e087995db8b151ab1b9f45b78fbc0119572df756
+
+更早期 2026-06-16 更新： https://github.com/wrgfdn-u/evwmqe/commit/9f255767a9f7e3f3996976447da6a91eaba8c671
+
+各地运营商 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/66712915286c66e5f142011b06116573d9a1e5c2
+
+全国可用直播源： https://github.com/wrgfdn-u/evwmqe/commit/ef49d7fb3d42e72f1805a8a8c320d0092e2d570c
+
+2026-06-16 更新： https://github.com/jewelrober/dpcwds/commit/9d34f149aa7c0963b1adcdeb20e46b1558180030
+
+赞助者： https://github.com/wrgfdn-u/evwmqe/commit/b6ab3e3b1d0c82a831eba7087c11cd3387643bf1
+
+文章： https://github.com/jewelrober/dpcwds/commit/7a862a275922c05be285d9dfc8d6934337d7b869
+
+视频教程： https://github.com/wrgfdn-u/evwmqe/commit/f2c355e2d97cb082792114629c9c47e59dd8174a
+
+插件： https://github.com/jewelrober/dpcwds/commit/89eb4789db80d824a43b0065b3bbeb019528dfd9
+
+工具： https://github.com/wrgfdn-u/evwmqe/commit/11f44b262f5932e2dea3c97259db3025ed35b298
+
+URL： https://github.com/jewelrober/dpcwds/commit/fa07c8812a68faeb4d333df917dae83bf97badd3
+
+目录： https://github.com/wrgfdn-u/evwmqe/commit/4ddacae1aad57d6559c63aa88cfe22b079cd7d52
+
+喀麦隆直播电视频道： https://github.com/jewelrober/dpcwds/commit/48ecf4cf3e015c8f470e0bad04862dfff5e8a091
+
+阿富汗直播电视频道： https://github.com/wrgfdn-u/evwmqe/commit/2d248a9da8a7a4d921629961db21d900832b3ad6
+
+海地的直播频道： https://github.com/jewelrober/dpcwds/commit/e2735e389b1fd03d46b07f87cf93ca4659444075
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/wrgfdn-u/evwmqe/commit/c042d8e60dc7597dbcbe8f6df65e3a81d8e6a644
+
+厄瓜多尔直播频道： https://github.com/jewelrober/dpcwds/commit/b3eb9e598d6932773d8c69a47cd14e817f06f048
+
+玻利维亚直播频道： https://github.com/wrgfdn-u/evwmqe/commit/54157c7e943810d34f42b9553f228e750e9fddf8
+
+萨尔瓦多直播频道： https://github.com/jewelrober/dpcwds/commit/1d8b451740f9047b8e9c28da407eca95594b3383
+
+危地马拉直播频道： https://github.com/wrgfdn-u/evwmqe/commit/c5fc678b982c2231d783c352cc5e3b1fb14dd32e
+
+洪都拉斯直播频道： https://github.com/jewelrober/dpcwds/commit/001ebf1516b13d02cab26b1316fb91ae3f0a2d82
+
+多米尼加共和国直播频道： https://github.com/wrgfdn-u/evwmqe/commit/ea2f204966adffc85f45d55b100ce18b66b00c74
+
+哥斯达黎加直播频道： https://github.com/wrgfdn-u/evwmqe/commit/8aaeb8ae2e3583584e50fc4b57646a7c67d239f1
+
+来自世界各地的个电视频道和个摄像机： https://github.com/wrgfdn-u/evwmqe/commit/f6dcd724377ab4e40e43d80529daa33eb2fcaddc
+
+免费数据库： https://github.com/wrgfdn-u/evwmqe/commit/91fc6fe3e01b584211912f14a5304aa2594599d6
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/wrgfdn-u/evwmqe/commit/dc25907d4c32d1d434a44c8d22936a792f9c968d
+
+超过个国家地区的个高清频道和： https://github.com/wrgfdn-u/evwmqe/commit/80d44e0dab6625764ab5b2f8e0536887f3b549ee
+
+超过个直播电视频道影视节目： https://github.com/wrgfdn-u/evwmqe/commit/2c989cc56a24a0c202e9b958ddf97ea2f6eee3ab
+
+提供商列表： https://github.com/wrgfdn-u/evwmqe/commit/623ae1d45acd50073ff210d54f1793fd319d0ced
+
+提供者： https://github.com/wrgfdn-u/evwmqe/commit/ff64f4fffc9102bb6c6a08d7fe3fb010a571739f
+
+客户端服务器媒体播放器： https://github.com/wrgfdn-u/evwmqe/commit/f41b214c1afea451f67eee57c392f4f564e006f0
+
+支持播放列表文件： https://github.com/wrgfdn-u/evwmqe/commit/707a194c0d95f94677302abaa9ea026d666a9f7a
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/wrgfdn-u/evwmqe/commit/c4fe9613226d45cbaebd2fe9484a210186bf6fb2
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/wrgfdn-u/evwmqe/commit/39bf89b97bd935be0a96cf67f657157126e7be1b
+
+点 即可： https://github.com/wrgfdn-u/evwmqe/commit/ea914c9bd51c3873848b03a9ea44b62ca17d5d35
+
+第三行不用管： https://github.com/wrgfdn-u/evwmqe/commit/d97384ac5246a65e83e11bd25db508506ef88bff
+
+第二行输入上面给你的地址： https://github.com/wrgfdn-u/evwmqe/commit/18768c37708e66c245e8d5747b1b05709470bc83
+
+第一行随意输入一个名字： https://github.com/wrgfdn-u/evwmqe/commit/75211bddfcbf051ec4f63de5a02d599c4b926ab4
+
+选择 远程播放列表文件： https://github.com/wrgfdn-u/evwmqe/commit/c463f7e23d0ea1f847a449fa06f44cb1801d0d00
+
+打开 点击 号： https://github.com/wrgfdn-u/evwmqe/commit/40ccfc445c3492e35955195097e67659d1f30ae6
+
+食用指南： https://github.com/wrgfdn-u/evwmqe/commit/ecf4fb288013f399d4c83c98503b3415f2aa4ff6
+
+适用于 macOS 的现代媒体播放器： https://github.com/wrgfdn-u/evwmqe/commit/cd14082b110f53244b285defea2e4e3673de1a61
+
+直播电视和广播客户端插件： https://github.com/wrgfdn-u/evwmqe/commit/31dd740aa2fb5f46883d67c550d1e606cef4347c
+
+具有库支持的免费跨平台媒体播放器： https://github.com/wrgfdn-u/evwmqe/commit/9c642919b504aa06653f845ab94566f443ff8774
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/wrgfdn-u/evwmqe/commit/12b084ff0eadd485341a20667f21f58b5e1e76cb
+
+支持 IPTV 流的应用程序： https://github.com/wrgfdn-u/evwmqe/commit/1754401cbd04bc522f0f92030642b67c462ac737
+
+工具： https://github.com/wrgfdn-u/evwmqe/commit/4f16884d32c573489129023da7b6de24fdcf5cce
+
+轮播华数求索爱奇艺 2026-06-16 更新： https://github.com/wrgfdn-u/evwmqe/commit/a5438235d904e876a06043d74694a4b26e0ca184
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/wrgfdn-u/evwmqe/commit/aa3c358a2640cbbc06fd7f59f349321ebcaca2d5
+
+台湾香港海外直播源 2026-06-16 更新： https://github.com/wrgfdn-u/evwmqe/commit/5bd42f88b2c5da2b12a96dd17ab5d7ea16bec089
+
+各大卫视、上千个地方台： https://github.com/wrgfdn-u/evwmqe/commit/70addfe9f2bb94fe6fbaa361939b177ab7e67be4
+
+国内电视台直播源 2026-06-16 更新： https://github.com/wrgfdn-u/evwmqe/commit/e6fe972d3addb3b00b8f8296984ca40dadf8cc3a
+
+卫视腾讯云： https://github.com/wrgfdn-u/evwmqe/commit/4852781b953210e92aa70148ed944e2714e94b86
+
+卫视平顶山学院教育网： https://github.com/wrgfdn-u/evwmqe/commit/9d2124bcc0d9a58fa5625866f566b3d4750c4c9a
+
+卫视天途云： https://github.com/wrgfdn-u/evwmqe/commit/a49f4dd3ece919f1409353857f7a28f7c55c0dda
+
+卫视地方台安徽农大： https://github.com/wrgfdn-u/evwmqe/commit/85f60dfc50c76909166fa112b44db885876a988f
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/wrgfdn-u/evwmqe/commit/2773a6d43bb92e5870f36c96e30d787ce69dd506
+
+央视卫视广西移动直播源： https://github.com/jewelrober/dpcwds/commit/871c0bcf1c8f1a1c1e65f010da25c4123afb67c6
+
+付费频道直播源： https://github.com/jewelrober/dpcwds/commit/de1cff20b7ab5455adac700de5214fc2648a0ca9
+
+国家直播源多个全部有效： https://github.com/jewelrober/dpcwds/commit/da05dea138ea1f57c9619928d3ec5946c59e8dc3
+
+直播源全部有效： https://github.com/jewelrober/dpcwds/commit/d4a4dc732ab71770c8d00557e64b9175e8749874
+
+全部有效： https://github.com/jewelrober/dpcwds/commit/e6224fb0166d0f6236bd59713fe89e87be918815
+
+直播源全部有效老电脑别用： https://github.com/jewelrober/dpcwds/commit/323ead9c5de742f96c5cf3130ca851876e20c8e3
+
+影视剧场全部流畅： https://github.com/jewelrober/dpcwds/commit/58bf9631b800411bc78d3d0835ee04f5f9e3870c
+
+全部可用： https://github.com/jewelrober/dpcwds/commit/693fe164e6906cb5085e6e9685cf90fa547e4b59
+
+我的播放源： https://github.com/jewelrober/dpcwds/commit/447fd09e71bb57174220c462a754fc44d23feee2
+
+其他直播源 不确定有效性： https://github.com/jewelrober/dpcwds/commit/3450ae479efec32b0d4865aa8305ac4e8d910b6e
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/7d51456214bc7559488825338b1bac2214e7d692
+
+新疆 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/91e7c1d250831cbc3c86b79c95a52fbade1e9394
+
+内蒙古联通 udp 组播下载地址： https://github.com/jewelrober/dpcwds/commit/e391507daa534894356d3d47f5baa71c86b4fa8c
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/ca3c30802bf97153df2eecd9e7f7902a27e8ef89
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/9e08ae8f00f94a4625da89fdfd46969443bf58bf
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/e7fdacf7e62b2bc1b58c93ead5a7a1edcb8cc6dc
+
+内蒙古 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/8edc99adc352b9c047cf458fd91cfca65766779d
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/e86416e93ab3584a697e00f8d808bc13fc24d528
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/8638c0636ac10ca8ef9e79bafb672f7e40f59857
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/da232a0e4a2cd61411e965eb70edef5f3d6d9566
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/f72601ae683a9aa235b9ad58c01f535415a26d17
+
+黑龙江 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/ce01635f35946f6ad66b43351146087770eee928
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/f1306714db6068cdb09325b12a6b837fc53c1329
+
+吉林 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/ded8843889df325353d494c2f0a9e941db9174b3
+
+辽宁移动直播源下载地址： https://github.com/jewelrober/dpcwds/commit/cb9d8f269c74f300533c71d08be0093003b7fb56
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/2ecf8dcef4c758085c9ab5e741ca439389427938
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/e627ddf5f2605d73d0aad6bbe64f6ca4ec1bc25f
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/a3a188ba7a5bd628bacbaaa27287d8578ca1cd20
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/8501210f1acec8a0762d7cc36e0c217e7bc7e6e7
+
+辽宁 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/d5f6cd941f1e82e184f95ef344d66e4bdf1d90ed
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/31daa60502bff9bd77f60eebb189f0fa61c7f421
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/jewelrober/dpcwds/commit/6c1df077d07af53d7a1bba5e74c52fc39d9c5189
+
+浙江联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/403f41d4beb8de1f900e32300867b511ba2a5e2c
+
+浙江移动 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/7fdaf4bda7e529f31b00929c70cf92f8eb59c766
+
+浙江 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/96d9a8c4a73561ef29e843a1f62b1ae8fece8681
+
+江西联通 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/3668d1fb715c5057f0a34e5e3f19ab5a3d0dd332
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/e56b0b3ad08f0791ee2c3341944e73f60a50346f
+
+江西电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/d5a6348f3376e7272877209baf296f169cfd6214
+
+江西移动 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/8c240401be1f94ea39d7a861328a7399161f180f
+
+江西 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/06f3ababfbc1f7cb4bbc3888d22cf7bb901fc936
+
+江苏移动 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/7a42ab92111345c5e5c2983663daf5c6647c05cf
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/23f258904cef9ac22ce0be0e38dc77c3b24a9dd0
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/94338b0fbc31dfb8d5ae4b2ddfda24b513550417
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/0eb9fd2b395bd00988b3919cd88feca7e56ee9ee
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/9a5967edec9980db507ab6b9bb93454e44021263
+
+江苏电信 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/f5e2e409f38a4ade6d37ef68e8561e485dbd8572
+
+江苏 IPTV 直播源： https://github.com/jewelrober/dpcwds/commit/9e9ba20b2444bce5767bfae042ee762d91ac86c6
+
+安徽广电 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/f9f5c8cc7dd446785d05d28e128fec626737bb91
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/59d473d774d35c4dd269d11fa8c0acb9242e66f9
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/jewelrober/dpcwds/commit/44e7ab8353951b1d7487fb4a3599980153a7cc29
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月16日15时48分28秒
+来源：https://github.com/jewelrober/dpcwds/commit/3009047c7535f679f637b6f240e058353646495b
+
+来源：https://github.com/jewelrober/dpcwds/commit/150ee52fba4c63625972b1644fce576c5225a0a7
+
+来源：https://github.com/jewelrober/dpcwds/commit/b1af8812ea1ddc9987b1e96dc1c4146bdb6f68d3
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月16日，15时48分28秒
